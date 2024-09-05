@@ -1,0 +1,1 @@
+# Analise-Critica-Intel-Scrum
